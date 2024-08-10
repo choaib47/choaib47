@@ -1,4 +1,4 @@
-Hi there, I’m Choaib B.! 👋
+Hi there, I’m Choaib! 👋
 
 Welcome to my GitHub profile!
 
